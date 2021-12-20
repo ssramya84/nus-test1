@@ -6,6 +6,6 @@
 
 am going order food because this is a lunch time
 
-my prefrence
+my preferences
 1. Chicken rice
 2. Briyani
